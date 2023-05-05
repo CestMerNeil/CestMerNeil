@@ -2,7 +2,7 @@
 - I am currently a student of a French computer engineer degree.
 - At the same time, I am also a music lover and photographer.
 - It is my pleasure to invite you to visit my private website: 
-- https://aoxie.art
+- https://perso.isima.fr/~aoxie/
 - You can also contact me by e-mail: 
 - neil.xie.ao@gmail.com;
 
